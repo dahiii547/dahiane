@@ -1,0 +1,2 @@
+# dahiane
+gerekli bilgi
